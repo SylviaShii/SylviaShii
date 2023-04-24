@@ -40,7 +40,7 @@ High Merit
 - Sanmenxia Dingli Investment and Guaranty Co., Ltd (2018)\
 Responsible for the investigation and track of the customer's capital operation, making report to analyze their situation
 - DYNY Corporation (2022)\
-Responsible for handling the financing and allocation of funds of subordinate branches
+Intern in the Funds Office, Department of Financial Assets, mainly dealing with businesses related to fund raising and allocation 
 
 <br/>  
 
