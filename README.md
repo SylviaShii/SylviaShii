@@ -37,9 +37,10 @@ High Merit
 ## Internship Experience  
   
 
-Sanmenxia Dingli Investment and Guaranty Co., Ltd (2018)\
-DYNY Corporation (2022)  
-  
+- Sanmenxia Dingli Investment and Guaranty Co., Ltd (2018)\
+Responsible for the investigation and track of the customer's capital operation, making report to analyze their situati
+- DYNY Corporation (2022)\
+Responsible for handling the financing and allocation of funds of subordinate branches
 
 <br/>  
 
