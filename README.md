@@ -11,7 +11,7 @@ GPA: 3.09/5.0
 - #### Master of Science
 Queen Mary University of London(2020-2021)\
 MSc FT Investment and Finance\
-High Merit  
+High Merit(67)  
   
 
 ## Research interest  
@@ -34,12 +34,12 @@ High Merit
   
   
 
-## Internship Experience  
+## Work Experience  
   
 
-- Sanmenxia Dingli Investment and Guaranty Co., Ltd (2018)\
+- Sanmenxia Dingli Investment and Guaranty Co., Ltd (2018.02-04)\
 Responsible for the investigation and track of the customer's capital operation, making report to analyze their situation
-- DYNY Corporation (2022)\
+- DYNY Corporation (2022.06-now)\
 Intern in the Funds Office, Department of Financial Assets, mainly dealing with businesses related to fund raising and allocation 
 
 <br/>  
